@@ -1,1 +1,1 @@
-# Ewa Ziętek praca inżynierska
+# Bachelor's degree
